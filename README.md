@@ -1,4 +1,4 @@
-# Hi there, I'm Sweety KUmari! 👋
+# Hi there, I'm Sweety Kumari! 👋
 
 ### 🎓 Education
 * **Branch:** AIML (CSE)
